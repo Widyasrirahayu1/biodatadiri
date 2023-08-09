@@ -1,0 +1,2 @@
+# biodatadiri
+pa drizki
